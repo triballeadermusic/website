@@ -1,3 +1,2 @@
 # website
 
-www.tugmaps.quest
