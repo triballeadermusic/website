@@ -14,7 +14,7 @@ permalink: /
 
 ### Really, the core of tugmaps is the future hypothetical business we might do based on the hypothetical advancements in tug technology we totally guarantee are happening behind the scenes. You’re not just ingesting*** in a tug, but the future itself! I know what you’re thinking, but, no! We are not legally a Ponzi scheme
 
- ### Tugmaps partnership with male contraceptive implants! 
+ Tugmaps partnership with male contraceptive implants! 
  Get a tug and a plug all at once 🌈
 
 
