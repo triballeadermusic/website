@@ -1,6 +1,7 @@
 ---
 layout: default
 title: Home
+permalink: /
 ---
 
 "Pull it longer not HARDER" - Tugmaps ™️
