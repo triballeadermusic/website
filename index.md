@@ -15,4 +15,4 @@ Really, the core of tugmaps is the future hypothetical business we might do base
 
  Tugmaps partnership with male contraceptive implants. Get a tug and a plug all at once 🌈
 
- use coupon code: ONETUGWITHTHEHANDTHREEINTHEBUSH
+ use coupon code: **ONETUGWITHTHEHANDTHREEINTHEBUSH**
