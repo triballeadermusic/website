@@ -1,5 +1,3 @@
 # website
 
-hello world
-
-test test test
+www.tugmaps.quest
