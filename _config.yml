@@ -1,6 +1,2 @@
 title: tugmaps
 description: Tug longer not harder
-
-plugins:
-  - jekyll-remote-theme
-remote_theme: pages-themes/cayman
